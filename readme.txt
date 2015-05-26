@@ -1,0 +1,1 @@
+je suis en train de realiser l'exercice de la deuxieme parti du cours
